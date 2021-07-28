@@ -1,0 +1,1 @@
+# JSprojects-mini-project-everyday
